@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Met
-- Based in Bremerton, WA (PDT/PST)
+- UX Designer/Researcher based in Bremerton, WA (PDT/PST)
 - 👀 I’m interested in designing for good
 - 🌱 I’m currently learning about the govt/VA space
 - 💞️ I’m looking to collaborate on anything and everything
